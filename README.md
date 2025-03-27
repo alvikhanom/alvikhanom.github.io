@@ -1,1 +1,0 @@
-# alvikhanom.github.io
